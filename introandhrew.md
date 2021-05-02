@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @andhrew
+- 👀 I’m interested in east indonesian
+- 🌱 I’m currently learning kosaw
+- 💞️ I’m looking to collaborate on eberybody
+- 📫 How to reach me in my email andhrrew@gmail.com
